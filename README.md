@@ -1,5 +1,5 @@
 - 👋 Hi, I’m 'saksham' Srivastava
-- 👀 I’m interested in .... Binge Racing{kind of a field of interest for me}
+- 👀 I’m interested in .... 
 - 🌱 I’m currently learning ...Web Development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ....Dial 9871467124 and say hello
